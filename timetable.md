@@ -14,3 +14,7 @@ Hier alvast alle uren waarin ik heb gewerkt aan mijn PWS.
 2feb.'20 1700-2100(4u)
 (Nog een lange hiatus)
 20jun.'20 2300-100(2u)
+(Yup. Nog eentje.)
+26okt.'20 1800-000(6u)
+27okt.'20 1700-230(9,5u)
+28okt.'20 1630-100(8,5u) [HIER IS VERSIE I AFGEMAAKT, TOTALE UREN BESTEED: 57 UUR]
